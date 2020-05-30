@@ -1,0 +1,2 @@
+# tt
+ngehek-ig.sh
