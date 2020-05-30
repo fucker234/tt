@@ -1,2 +1,6 @@
 # tt
-ngehek-ig.sh
+ngehek-ig.sh 
+Ig hack
+Jqjwiekqk
+
+Mwkssjwk
